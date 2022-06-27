@@ -12,7 +12,4 @@ Bunny Prisoner Location
 Bringing a Gun to a Guard Fight
 
 Level 5: Expanding Nebula
-
-
-https://user-images.githubusercontent.com/76130563/176051228-3e227dc1-8a08-43d4-a826-e76b2780a936.mov
-
+![IMG_3411 2](https://user-images.githubusercontent.com/76130563/176051469-fd639bd7-1384-49ff-82fb-def2565bb119.jpg)
